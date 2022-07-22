@@ -1,0 +1,2 @@
+--> Join the Axeurus for more updates about the Let's Party∞ +Gear Testing Edition[READ THE DESC] script 😁
+--> Aexeurus Discord Invite discord.gg/UyWWEpvw8w
