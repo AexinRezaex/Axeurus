@@ -1,4 +1,4 @@
---> Join the Axeurus for more updates about the Let's Party∞ +Gear Testing Edition[READ THE DESC] script 😁
+--> Join the Axeurus Discord Server for more updates about the Let's Party∞ +Gear Testing Edition[READ THE DESC] script! 😁
 --> Aexeurus Discord Invite discord.gg/UyWWEpvw8w
 
 _, Protected_by_MoonSecV2, Discord = 'discord.gg/UyWWEpvw8w'
